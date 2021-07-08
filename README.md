@@ -8,4 +8,3 @@
 - Foto (.PNG E .JPEG)
 - Escolaridade
 
-![Formula%CC%81rio%20de%20cadastro%204b608807de5a4f499eedd3b76f8d1c2c/sadasda.png](Formula%CC%81rio%20de%20cadastro%204b608807de5a4f499eedd3b76f8d1c2c/sadasda.png)
